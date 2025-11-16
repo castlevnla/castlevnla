@@ -7,7 +7,7 @@ ${\textsf{\color{#cfcfcf} he ╱ him}}$ <img src="https://i.postimg.cc/fyqfSwDF/
 </
 </p> 
   <p align="center">
-${\textsf{\color{#cfcfcf} basic dni criteria. i dont like cuddles, sorry!  }}$ 
+${\textsf{\color{#cfcfcf} basic dni criteria. also my comfort account  }}$ 
 </p> 
 
 <p align="center">
