@@ -1,7 +1,7 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=castlevanla&color=ac988e&style=flat-square&label=visitors" />
-${\textsf{\color{#ae9c85} heeyyy. }}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
+  <img src="https://komarev.com/ghpvc/?username=castlevanla&color=76242d&style=flat-square&label=visitors" />
+${\textsf{\color{#cfcfcf} heeyyy. }}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
 </
 </p> 
 
@@ -12,4 +12,4 @@ ${\textsf{\color{#ae9c85} heeyyy. }}$ <img src="https://i.postimg.cc/fyqfSwDF/a0
 <h6 align="center"> © @yukurimpng on tumblr</h6> 
 
 <p align="center">
-  ${\textsf{\color{#ae9c85} alt accㅤ✦ㅤspam follow }}$
+  ${\textsf{\color{#cfcfcf} alt accㅤ✦ㅤspam follow }}$
