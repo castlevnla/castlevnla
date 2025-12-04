@@ -3,11 +3,11 @@
   <img src="https://komarev.com/ghpvc/?username=castlevanla&color=a20808&style=flat-square&label=heeya" />
   
   <p align="center">
-${\textsf{\color{#cfcfcf} he ╱ him}}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
+${\textsf{\color{#cfcfcf} hii.}}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
 </
 </p> 
   <p align="center">
-${\textsf{\color{#cfcfcf} basic dni criteria. also my comfort account  }}$ 
+${\textsf{\color{#cfcfcf} block to remove!!  }}$ 
 </p> 
 
 <p align="center">
