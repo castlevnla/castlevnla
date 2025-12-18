@@ -1,20 +1,17 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=castlevanla&color=a20808&style=flat-square&label=heeya" />
-  
-  <p align="center">
-${\textsf{\color{#cfcfcf} hii.}}$ <img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/>
-</
-</p> 
-  <p align="center">
-${\textsf{\color{#cfcfcf} block to remove!!  }}$ 
-</p> 
+   <img src="https://komarev.com/ghpvc/?username=castlevanla&color=460000&style=flat-square&label=tears"/>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/526b14fab5ebd436fff2197d0dc849f8/6f206ac44cf7a67a-4b/s1280x1920/fd4340cbb75223e4ea6c84dc3610adf2a3337649.pnj" width="200">
-</p> 
-
-<h6 align="center">ㅤㅤㅤ© ㅤ @yukurimpng on tumblr</h6> 
-
+━━━━━━
+ </p>
 <p align="center">
- ㅤ ${\textsf{\color{#a26037} ㅤalt acc.}}$ ${\textsf{\color{#935993}ㅤ✦ㅤspam follow }}$
+  ${\textsf{\color{#b29c9c} ✦ㅤ}}$ ${\textsf{\color{#403a3a}mael / gege}}$ ${\textsf{\color{#403a3a} 🀥ㅤheㅤhim }}$  ${\textsf{\color{#b29c9c} ✦ㅤ}}$
+<p align="center">
+━━━━━━
+ </p>
+<h6 align="center">block to remove</h6>
+<p align="center">
+<img src="https://i.postimg.cc/fyqfSwDF/a00531e2616cd41f6171c6d4ae53aa5b6e400257.gif" alt="me" width="15"/> 
+ </p>
+
