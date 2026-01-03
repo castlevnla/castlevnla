@@ -1,12 +1,6 @@
 
 <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=castlevanla&color=460000&style=flat-square&label=tears"/>
-
-<p align="center">
-━━━━━━
- </p>
-<p align="center">
-  ${\textsf{\color{#b29c9c} ✦ㅤ}}$ ${\textsf{\color{#403a3a}mael /fafa}}$ ${\textsf{\color{#403a3a} 🀥ㅤheㅤhim }}$  ${\textsf{\color{#b29c9c} ✦ㅤ}}$
+   <img src="https://komarev.com/ghpvc/?username=castlevanla&color=460000&style=flat-square&label=hi"/>
 <p align="center">
 ━━━━━━
  </p>
